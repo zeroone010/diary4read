@@ -1,2 +1,0 @@
-# diary4read
-xiaolidexuexiriji
